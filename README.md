@@ -10,21 +10,21 @@ Durante el curso, en todas las secciones, encontrarás tareas para poner en prá
 
 ¿Qué ventajas tiene este curso?
 
-100% práctico: ejercicios y soluciones con el iPad, con una excelente resolución.
+1. 100% práctico: ejercicios y soluciones con el iPad, con una excelente resolución.
 
-Resúmenes de teoría, fórmulas y propiedades en cada sección.
+2. Resúmenes de teoría, fórmulas y propiedades en cada sección.
 
-Conceptos de teoría explicados en la práctica a través de los ejercicios resueltos.
+3. Conceptos de teoría explicados en la práctica a través de los ejercicios resueltos.
 
-Material en pdf con los ejercicios resueltos de manera escrita también.
+4. Material en pdf con los ejercicios resueltos de manera escrita también.
 
-Ejercicios de exámenes de universidad resueltos.
+5. Ejercicios de exámenes de universidad resueltos.
 
-Acceso al grupo privado para dudas, te sentirás acompañado! 
+6. Acceso al grupo privado para dudas, te sentirás acompañado! 
 
-Podrás sugerir tú mismo los próximos ejercicios resueltos que subiremos para actualizar el curso.
+7. Podrás sugerir tú mismo los próximos ejercicios resueltos que subiremos para actualizar el curso.
 
-Sorpresa al final.
+8. Sorpresa al final.
 
 Incluye los temas: 
 
